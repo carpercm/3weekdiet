@@ -20,4 +20,6 @@ For the low cost on this diet system it’s definitely worth giving it a shot. T
 
 ORDER THE 3 WEEK DIET SYSTEM TODAY!
 
-As always be sure to check with your doctor before beginning any diet system.Type your paragraph here.
+As always be sure to check with your doctor before beginning any diet system.
+
+www.vortexshuffle.com
